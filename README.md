@@ -51,15 +51,20 @@ I am comfortable using in a progressional environment online collaboration and c
 
 **The Economist** (Apr 2016 to Apr 2018)    
 *Scrum Master*  
+
 **Wowcher** (Nov 2015 to Apr 2016)   
 *Project Manager*  
+
 **Cloud Sherpas** (Apr 2015 to Sept 2015)   
 *Senior Project Manager*
+
 **Razorfish** (Sept 2014 to Apr 2015)   
 *Senior Project Manager*
+
 **Digitas Health LifeBrands** (Jul 2013 to Aug 2014)   
 *Senior Project Manager*
+
 **Potato (Google Vendor)** (Jun 2012 to Jun 2013)   
 *Senior Technical Project Manager*
 
-Full profile can be found here: https://www.linkedin.com/in/jkhan991/
+**Full profile can be found on LinkedIn: https://www.linkedin.com/in/jkhan991/**
