@@ -4,7 +4,7 @@ Bringing project management methodologies together with working in an agile envi
 
 I've worked at various different organisations of different shapes and sizes including Google (via a Vendor), The BBC and The Economist.
 
-Im looking to work somewhere that offers the flexibility to work onsite or remotely, working alongside development teams.
+I'm looking to work somewhere that offers the flexibility to work onsite or remotely, working alongside development teams.
 
 ## Skills
 
